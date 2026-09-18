@@ -227,4 +227,4 @@ Clash of Irons: Blitzkrieg is the complete free version with all features and up
 Experience the thrill of commanding your troops in Clash of Irons: Blitzkrieg. Download your free copy today and dive into the action!
 
 ---
-**Last updated:** 2026-09-18 16:49:07 UTC
+**Last updated:** 2026-09-18 19:18:32 UTC
